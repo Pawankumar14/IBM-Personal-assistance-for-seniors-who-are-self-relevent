@@ -1,1 +1,1 @@
-# IBM-Personal-assistance-for-seniors-who-are-self-relevent
+# IBM-Personal-assistance-for-seniors-who-are-self-reliant
